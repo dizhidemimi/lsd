@@ -11,7 +11,7 @@
 
 ---
 
-💙 ➡️ **【最新地址】** ：https://easyredirect.top
+💙 ➡️ **【最新地址】** ：https://勇敢.easyredirect.top/阳光
 
 💙 ➡️ **【永久地址】** ：https://geiwodizhi.com
 
